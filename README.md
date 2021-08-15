@@ -1,0 +1,3 @@
+- I’m @PhantomCube08
+- I’m interested in game development and things surrounding it, such as music creation, modeling, animating, art...
+- I’m planning the creation of my own games.
